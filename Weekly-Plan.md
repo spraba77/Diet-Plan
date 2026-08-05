@@ -16,7 +16,8 @@
   - Pumpkin seeds (1 tsp)  
   - Sunflower seeds (1 tsp)  
   - Brazil nut (1)  
-  - Fruit (berries/apple/cantaloupe rotation)  
+  - Fruit (berries/apple/cantaloupe rotation)
+  - Pinch cinnamon powder 
 - **10:30 AM:** Green tea with lemon / black coffee (no sugar) *(optional cucumber slices or 2–3 strawberries)*  
 - **8:30–9:00 PM:** Walking  
 - **Before bed:** Luke‑warm water + ¼ lemon juice mix  
