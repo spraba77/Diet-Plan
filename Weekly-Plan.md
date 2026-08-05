@@ -9,7 +9,14 @@
 - **7:00–7:50 AM:** Walking  
 - **8:15 AM:** Anti-inflammatory drink  
   *(chia seeds soaked overnight – 3 tsp, 2 tbsp ACV, 2 tbsp lemon juice, pinch turmeric, pinch ginger, 1 tbsp olive oil, pinch cayenne pepper)*  
-- **8:30 AM Breakfast:** Oats + walnuts + flax seeds + pumpkin seeds + 1 Brazil nut + fruit (berries/apple/cantaloupe rotation)  
+- **8:30 AM Breakfast:**  
+  - Oats (½ cup cooked)  
+  - Walnuts (2 halves)  
+  - Flax seeds (1 tsp)  
+  - Pumpkin seeds (1 tsp)  
+  - Sunflower seeds (1 tsp)  
+  - Brazil nut (1)  
+  - Fruit (berries/apple/cantaloupe rotation)  
 - **10:30 AM:** Green tea with lemon / black coffee (no sugar) *(optional cucumber slices or 2–3 strawberries)*  
 - **8:30–9:00 PM:** Walking  
 - **Before bed:** Luke‑warm water + ¼ lemon juice mix  
@@ -50,7 +57,7 @@
 ## ⭐ Guiding Principles
 - **Carbs:** Reduced rice portions, rotate with quinoa and millets.  
 - **Protein:** More chicken breast (grilled/baked, low oil), egg whites, sprouts, chickpeas, Greek yogurt.  
-- **Healthy fats:** Nuts, seeds, avocado, olive oil, guacamole.  
+- **Healthy fats:** Nuts, seeds (including sunflower seeds), avocado, olive oil, guacamole.  
 - **Omega‑3 focus:** Flax seeds, walnuts, chia seeds.  
 - **Vegetables:** Wide rotation — don’t restrict to a few.  
 - **Fruits:** Rotate daily for antioxidants and fiber.  
