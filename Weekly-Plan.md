@@ -10,7 +10,7 @@
 - **8:15 AM:** Anti-inflammatory drink  
   *(chia seeds soaked overnight – 3 tsp, 2 tbsp ACV, 2 tbsp lemon juice, pinch turmeric, pinch ginger, 1 tbsp olive oil, pinch cayenne pepper)*  
 - **8:30 AM Breakfast:**  
-  - Oats (½ cup cooked)  
+  - Oats (½ cup cooked with water)  - Prefer steel cut oats instead of rolled oats
   - Walnuts (2 halves)  
   - Flax seeds (1 tsp)  
   - Pumpkin seeds (1 tsp)  
